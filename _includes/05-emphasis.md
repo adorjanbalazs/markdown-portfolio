@@ -1,1 +1,5 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+_We_ don'wanna __war__
+
+__Stop__ your _business_
+
+__*Peace*__ ☮️
