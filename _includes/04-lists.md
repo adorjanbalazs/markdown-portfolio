@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Dre
+- Snoop
+- Puff
+- L
+- Tupac Shakur rest in peace
