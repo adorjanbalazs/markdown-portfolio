@@ -1,0 +1,5 @@
+- Dre
+- Snoop
+- Puff
+- L
+- Tupac Shakur rest in peace
